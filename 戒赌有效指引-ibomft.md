@@ -18,7 +18,12 @@
 
 这条路没有捷径，但有正路。我见过戒了十年又复赌的，也见过输掉百万彻底翻篇的。差别就一个：有没有一套能落地的戒赌有效指引，并当成每日功课，傻傻执行。别的都是虚的。
 
-<!-- 互链占位 -->
+## 相关推荐
+
+- [戒赌办法](https://github.com/gh-mt4alg79-2f8498a7914a/cheshi-jiedu/blob/main/%E6%88%92%E8%B5%8C%E5%8A%9E%E6%B3%95-kahuor.md)
+- [戒赌怎么戒](https://github.com/gh-mt4alg79-2f8498a7914a/cheshi-jiedu/blob/main/%E6%88%92%E8%B5%8C%E6%80%8E%E4%B9%88%E6%88%92-aapbnh.md)
+- [戒赌的办法](https://github.com/gh-mt4alg79-2f8498a7914a/cheshi-jiedu/blob/main/%E6%88%92%E8%B5%8C%E7%9A%84%E5%8A%9E%E6%B3%95-mzuhno.md)
+- [戒赌最狠的三个方法](https://github.com/gh-mt4alg79-2f8498a7914a/cheshi-jiedu/blob/main/%E6%88%92%E8%B5%8C%E6%9C%80%E7%8B%A0%E7%9A%84%E4%B8%89%E4%B8%AA%E6%96%B9%E6%B3%95-qkufap.md)
 
 先来一个戒赌测试，别回避，心里默答。
 
@@ -37,7 +42,10 @@
 
 如果你问我现在过得怎样？谈不上大富大贵，但晚上敢关手机，逢年过节敢回家。你也在挣扎的话，先把你每一条自欺式的借口写在纸上，再对照上面的测试。每一次回答，都是你离深渊的距离。
 
-<!-- 互链占位 -->
+## 相关推荐
+
+- [戒赌到底怎么办才有效](https://github.com/gh-mt4alg79-2f8498a7914a/cheshi-jiedu/blob/main/%E6%88%92%E8%B5%8C%E5%88%B0%E5%BA%95%E6%80%8E%E4%B9%88%E5%8A%9E%E6%89%8D%E6%9C%89%E6%95%88-hpgzvx.md)
+- [戒赌办法](https://github.com/gh-mt4alg79-2f8498a7914a/cheshi-jiedu/blob/main/%E6%88%92%E8%B5%8C%E5%8A%9E%E6%B3%95-sxuesf.md)
 
 每天固定在戒赌论坛回复求助帖，渐渐混成了熟脸。总有戒友问我的经历，今儿干脆从头讲。
 
@@ -67,6 +75,8 @@
 
 现在我也信因果了，不觉得那是迷信。后来了解到，连爱因斯坦这样的人都认可因果律，我更不敢把传统智慧当糟粕。戒赌不是叫人变成木头，而是学会把欲望装进笼子。“不赌为赢”这四个字，越品越有味道。前三十年我差点把命搭进去，往后，我想做个清爽的人。
 
-<!-- 互链占位 -->
+## 相关推荐
+
+- [戒赌实用技巧](https://github.com/gh-mt4alg79-2f8498a7914a/cheshi-jiedu/blob/main/%E6%88%92%E8%B5%8C%E5%AE%9E%E7%94%A8%E6%8A%80%E5%B7%A7-liwvvw.md)
 
 > 更新时间：2026-09-03 21:54:39 · 内容指纹：月明河清TUOZWY
